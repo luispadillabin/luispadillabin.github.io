@@ -35,7 +35,7 @@ Administrative Process Improvement: Streamlined workflows to increase efficiency
 
 Professional Goals
 
-To contribute analytical, legal, and administrative expertise to a reputable organization while continuing to grow professionally and support high-quality operational outcomes.
+To contribute analytical, legal, administrative, IT or with technical support expertise to a reputable organization while continuing to grow professionally and support high-quality operational outcomes.
 
 Contact
 
